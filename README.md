@@ -1,6 +1,6 @@
 啪啪社区 最新地址如下：
 
-http://papa36.com
+http://lsj2017.com
 
 http://papab.pw 
 
