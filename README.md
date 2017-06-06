@@ -1,7 +1,5 @@
 啪啪社区 最新地址如下：
 
-http://lsj2017.com
-
 http://papab.pw 
 
 http://papad.pw 
